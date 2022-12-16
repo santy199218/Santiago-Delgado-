@@ -4,8 +4,8 @@ Este repositorio contiene todo lo relacionado a la prueba de Global Bank, para a
 Puede contarse conmigo:
 
 Correos electrónicos💻
-santiagodelg@hotmail.com
+santiagodelg@hotmail.com/
 santy199218@gmail.com
 
-Contacto se WhatsApp🟢
+Contacto de WhatsApp🟢
 68537725
